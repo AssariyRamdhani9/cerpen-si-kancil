@@ -1,0 +1,3 @@
+Pagi itu, Kancil melanjutkan perjalanannya ke bagian hutan yang lebih lebat. Semakin jauh dia melangkah, semakin rindang pepohonan yang ditemuinya. Pohon-pohon besar menjulang tinggi dengan daun-daunnya yang lebat, sehingga sinar matahari hanya sedikit menembus masuk. Meskipun agak gelap, Kancil tidak gentar. Dia justru menikmati suasana hutan yang misterius ini.
+
+Dalam perjalanan, Kancil melihat berbagai hewan hutan yang sibuk dengan aktivitas mereka. Seekor tupai melompat dari satu dahan ke dahan lain sambil membawa biji, dan seekor burung merak menampilkan bulu-bulunya yang indah untuk menarik perhatian pasangan. Si Kancil pun menyapa mereka semua dengan ramah.
